@@ -1,0 +1,3 @@
+**Ho Ho Chinese BBQ**
+**Austin, TX**
+I see my bros have done some reviews of this place already, so let me just add some more flavor. The food is decent, I've had better, but you don't come here for the food. You come here Tuesday at 8pm (you'll know I'm here when you see my sweet silver Range Rover that I got winning money betting and playing cards here) and partake in some gambling, cards, and betting for real money - be sure to tell them Seth sent you. If enough people friend me here, I'll fill you in on the other places where there is some real action. Also, the Chinese chicas here are great at polishing my doorknobs and trailer hitch.
