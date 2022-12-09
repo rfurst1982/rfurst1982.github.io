@@ -1,0 +1,5 @@
+**The Lodge Card Club**  
+**Round Rock, Tx**  
+I see some of the haters have come out to hate on my poker skills. Just call me Richie Furst, I can play poker with the best of them and beat them all. When you see a brand new silver Range Rover in the parling lot know I'm here looking to take your money before blowing it on some rare D&D gaming books and tables cause there is nothing more hardcore than whipping someone in poker then getting immersed in a fantasy world slaying dragons and getting the ladies. The only difference for me is the dragons, I don't have them in real life unless you count my wife. Of course, she'll never find me here cause this is a club and they don't just let anyone in, especially wives ans significant others.
+
+This place is awesome and I cheat on my wife, but I might cheat at cards because I am that good. I've got other places I frequent too, but The Lodge is the best. Just remember, when you see my silver Range Rover, I'll bet it cause I'll be using it to tow your old ride back with me.
