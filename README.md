@@ -2,6 +2,8 @@
 
 **Projects**  
 *Yelp Reviews* - I want to become a Yelp Elite Member in 2023. Below are examples of some of my best reviews to date.
+- [Austin Motor Inn](austinmotorinn.md)
+- [Ho Ho Chinese BBQ](hohochinesebbq.md)
 - [The Lodge](thelodge.md)
 
 
